@@ -8,3 +8,4 @@ russkie vpered
 --------------
 russkie vpered
 --------------
+PUTIN RUSSIA JESUS
