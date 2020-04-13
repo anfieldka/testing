@@ -8,3 +8,5 @@ russkie vpered
 --------------
 russkie vpered
 --------------
+------------
+IN PUTIN WE TRUST
